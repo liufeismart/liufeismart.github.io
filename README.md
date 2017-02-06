@@ -1,1 +1,1 @@
-liufei的技术博客
+liufei的CSDN博客:http://blog.csdn.net/sinat_20389697
